@@ -1,0 +1,1 @@
+The art work displays a pack of playing cards. The 8 ball design for the Ace card is inspired by famous fashion brand Stussy. Simple shapes were used in the art work to formulate complicated shapes, such as the heart, the spade and the club.

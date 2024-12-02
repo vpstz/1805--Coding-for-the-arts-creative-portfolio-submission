@@ -1,0 +1,1 @@
+The follwing project is a collage of the pictures ive taken in the UK and in this very unisversity. EAch picture is a very memorable time for me and there is a video that explains this little collage. 
